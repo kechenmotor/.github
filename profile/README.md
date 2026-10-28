@@ -2,6 +2,8 @@
 # Kechen Motor
 
 ### Micro Motors and Precision Motion Solutions for OEM Applications
+<img width="2172" height="724" alt="kechen-motor-manufacturer-profile-banner" src="https://github.com/user-attachments/assets/adacea32-b5f0-4d0d-95e7-758df06f309f" />
+
 
 ## About Us
 
